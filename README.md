@@ -13,5 +13,3 @@ Kogi ennui vape, hella bushwick glossier post-ironic schlitz keffiyeh. Bicycle r
 Synth vaporware pinterest franzen. Tacos bicycle rights four loko, williamsburg salvia direct trade activated charcoal snackwave cardigan. Umami mixtape iceland, enamel pin 90's hot chicken quinoa pug put a bird on it williamsburg. Truffaut kogi cronut pop-up tilde meh enamel pin glossier waistcoat helvetica gochujang tote bag cardigan. Umami woke kombucha microdosing swag hella gentrify tote bag ramps tumblr. Coloring book yuccie vegan, disrupt chicharrones meh blue bottle paleo forage wayfarers plaid letterpress gochujang church-key try-hard. Intelligentsia ennui taiyaki salvia migas health goth truffaut pok pok cred.
 
 Oh. You need a little dummy text for your mockup? How quaint.
-
-I bet you’re still using Bootstrap too…
